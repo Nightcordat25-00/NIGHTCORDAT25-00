@@ -1,6 +1,4 @@
-![Nightcord](https://user-images.githubusercontent.com/123456789.jpg)
-<p> SORRY FOR THE INCOVENCE STILL WORKINGO ON IT!</p>
-
+![NightCord At 25 _ 00](https://github.com/user-attachments/assets/bfbe9c29-bc94-4aca-a4e8-14a1a0725214)
 
 
 
@@ -13,7 +11,7 @@ _«In hopes of pulling Kanade out of her songwriting slump, Mizuki plans a myste
  
 ♡ pjsk, VOCALOID, ROBLOX, zzz
 
-♡ KANADE YOSAKI, ASHINA MAFUYU, ENA SHINONOME, AKYIMA MIZUKI!
+♡ KANADE YOSAKI, ASHINA MAFUYU, ENA SHINONOME, AKIYAMA MIZUKI!
        
 [![Nightcord at 25:00 — scene preview](./assets/n25-thumb.jpg)](https://www.youtube.com/watch?v=eWBjxT54RQA&list=RDeWBjxT54RQA&start_radio=1)
 
