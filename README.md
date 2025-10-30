@@ -17,3 +17,4 @@ _«In hopes of pulling Kanade out of her songwriting slump, Mizuki plans a myste
 
 Follow me on tiktok! (if you wanna support me and my pjsk trends): (https://www.tiktok.com/@your_too_slow_h0e) 
 
+TWITCH (IF YOU WANNA WATCH ME PLAY PJSK): (https://www.twitch.tv/yourtooslowspade)
