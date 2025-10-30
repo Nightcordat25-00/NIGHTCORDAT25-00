@@ -15,4 +15,5 @@ _«In hopes of pulling Kanade out of her songwriting slump, Mizuki plans a myste
        
 [![Nightcord at 25:00 — scene preview](./assets/n25-thumb.jpg)](https://www.youtube.com/watch?v=eWBjxT54RQA&list=RDeWBjxT54RQA&start_radio=1)
 
+Follow me on tiktok! (if you wanna support me and my pjsk trends): (https://www.tiktok.com/@your_too_slow_h0e) 
 
