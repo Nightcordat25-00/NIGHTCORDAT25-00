@@ -9,7 +9,7 @@ _«In hopes of pulling Kanade out of her songwriting slump, Mizuki plans a myste
 
 
  
-♡ pjsk, VOCALOID, ROBLOX, zzz
+♡ pjsk, VOCALOID, ROBLOX, FORSAKEN, CRK zzz
 
 ♡ KANADE YOSAKI, ASHINA MAFUYU, ENA SHINONOME, AKIYAMA MIZUKI!
        
@@ -18,3 +18,24 @@ _«In hopes of pulling Kanade out of her songwriting slump, Mizuki plans a myste
 Follow me on tiktok! (if you wanna support me and my pjsk trends): (https://www.tiktok.com/@your_too_slow_h0e) 
 
 TWITCH (IF YOU WANNA WATCH ME PLAY PJSK): (https://www.twitch.tv/yourtooslowspade)
+
+NOTE: I DO <b>NOT</b> COPY SKINS I USE RANDOM COLOR PALLETTES FOR COOLORS AND MAKE INSPO FOR N25 PONYS!
+
+FAVORITE SONGS ON REPEAT:
+
+BIRDBRAIN (OKGLASS FEAT TETO)
+
+KYU-KURAIN (IYOWA FEAT KAFU)
+
++♂️ (GIGA FEAT LEN AND THE GIRLS)
+
+REGRET ROCK! (MONOCHROMENACE FEAT TETO)
+
+CALL BOY (PJSK VER)
+(VIVID BAD SQUAD)
+
+MIND BRAND (N25)
+
+BUTCHER VANITY (YI XI)
+
+
