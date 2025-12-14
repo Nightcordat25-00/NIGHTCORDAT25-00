@@ -9,19 +9,32 @@ _«In hopes of pulling Kanade out of her songwriting slump, Mizuki plans a myste
 
 
  
-♡ pjsk, VOCALOID, ROBLOX, FORSAKEN, CRK zzz
+♡ PJSK, VOCALOID, ROBLOX, FORSAKEN, CRK zzz
 
 ♡ KANADE YOSAKI, ASHINA MAFUYU, ENA SHINONOME, AKIYAMA MIZUKI!
        
 [![Nightcord at 25:00 — scene preview](./assets/n25-thumb.jpg)](https://www.youtube.com/watch?v=eWBjxT54RQA&list=RDeWBjxT54RQA&start_radio=1)
 
-Follow me on tiktok! (if you wanna support me and my pjsk trends): (https://www.tiktok.com/@your_too_slow_h0e) 
+
+˖⁺‧₊˚♡˚₊‧⁺˖ⓈⓄⒸⒾⒶⓁⓈ˖⁺‧₊˚♡˚₊‧⁺˖
+
+Follow me on tiktok! (if you wanna support me and my pjsk trends): (https://www.tiktok.com/@yourtooslowh0e) 
+
+PJSK EDITS: (https://www.tiktok.com/@yourtooslowh0eeditz)
 
 TWITCH (IF YOU WANNA WATCH ME PLAY PJSK): (https://www.twitch.tv/yourtooslowspade)
 
+
+
+
+
+
 NOTE: I DO <b>NOT</b> COPY SKINS I USE RANDOM COLOR PALLETTES FOR COOLORS AND MAKE INSPO FOR N25 PONYS!
 
-FAVORITE SONGS ON REPEAT:
+
+
+
+ᯓ★ ⒻⒶⓋⓄⓇⒾⓉⒺ  ⓈⓄⓃⒼⓈ  ⓄⓃ   ⓇⒺⓅⒺⒶⓉ
 
 BIRDBRAIN (OKGLASS FEAT TETO)
 
@@ -38,4 +51,13 @@ MIND BRAND (N25)
 
 BUTCHER VANITY (YI XI)
 
+ⒶⒷⓄⓊⓉ    ⓂⒺ
+
+NAME: SUKI
+
+AGE: 19
+
+GENDER: PANSEXUAL 
+
+COUNTRY: JAPAN AND AUSTERILA 
 
