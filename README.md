@@ -18,9 +18,9 @@ _«In hopes of pulling Kanade out of her songwriting slump, Mizuki plans a myste
 
 ˖⁺‧₊˚♡˚₊‧⁺˖ⓈⓄⒸⒾⒶⓁⓈ˖⁺‧₊˚♡˚₊‧⁺˖
 
-Follow me on tiktok! (if you wanna support me and my pjsk trends): (https://www.tiktok.com/@yourtooslowh0e) 
+𝗠𝗔𝗜𝗡 𝗔𝗖𝗖𝗢𝗨𝗡𝗧:(https://www.tiktok.com/@yourtooslowh0e) 
 
-PJSK EDITS: (https://www.tiktok.com/@yourtooslowh0eeditz)
+𝗣𝗝𝗦𝗞 𝗘𝗗𝗜𝗧𝗦: (https://www.tiktok.com/@yourtooslowh0eeditz)
 
 TWITCH (IF YOU WANNA WATCH ME PLAY PJSK): (https://www.twitch.tv/yourtooslowspade)
 
@@ -29,7 +29,8 @@ TWITCH (IF YOU WANNA WATCH ME PLAY PJSK): (https://www.twitch.tv/yourtooslowspad
 
 
 
-NOTE: I DO <b>NOT</b> COPY SKINS I USE RANDOM COLOR PALLETTES FOR COOLORS AND MAKE INSPO FOR N25 PONYS!
+
+ⓃⓄⓉⒺⓈ: I DO 𝗡𝗢𝗧 COPY SKINS I USE RANDOM COLOR PALLETTES FROM COOLORS AND MAKE INSPO FOR N25 PONYS!
 
 
 
