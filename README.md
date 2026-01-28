@@ -13,7 +13,7 @@ _«In hopes of pulling Kanade out of her songwriting slump, Mizuki plans a myste
 
 ♡ KANADE YOSAKI, ASHINA MAFUYU, ENA SHINONOME, AKIYAMA MIZUKI!
        
-[![Nightcord at 25:00 — scene preview](./assets/n25-thumb.jpg)](https://www.youtube.com/watch?v=eWBjxT54RQA&list=RDeWBjxT54RQA&start_radio=1)
+[GIF HERE :P]
 
 
 ˖⁺‧₊˚♡˚₊‧⁺˖ⓈⓄⒸⒾⒶⓁⓈ˖⁺‧₊˚♡˚₊‧⁺˖
