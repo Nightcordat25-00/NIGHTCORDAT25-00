@@ -1,15 +1,28 @@
-![NightCord At 25 _ 00](https://github.com/user-attachments/assets/bfbe9c29-bc94-4aca-a4e8-14a1a0725214)
+<p align="center">⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹</p align="center">
 
-⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
+<B>𝓢𝓮𝓮 𝔂𝓸𝓾 𝓪𝓽, 𝓝𝓲𝓰𝓱𝓽𝓬𝓸𝓻𝓭 𝓪𝓽 25:00</b>
 
 
+<p>‎ </p>
 
+<button>
+
+<p>‎ </p>
 
 With the song that made Mafuyu smile complete, positive responses from fans come flooding in. Meanwhile, Mizuki feels like the only one unable to get closer to the other members. One day, the group bumps into An, who has seen a side to Mizuki that the others haven't...
 
 
 
-![Lower Ones Eyes gif](https://github.com/user-attachments/assets/a6b72237-7765-405e-862d-b083cd2b9205)
+<p>‎ </p>
+<p>‎ </p>
+
+![Lower Ones Eyes Project Sekai GIF - Lower ones eyes Project sekai Niigo - Discover   Share GIFs](https://github.com/user-attachments/assets/0ca0416e-8cf9-4dc3-9049-3279e184c0e1)
+
+
+
+
+
+
 
 
 
