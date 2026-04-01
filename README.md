@@ -12,8 +12,8 @@
 <p>‎ </p>
 
 
-https://spotify-github-profile.kittinanx.com
 <p>‎ </p>
+
 
 𝄞⨾💿✮˚.⋆
 
@@ -35,6 +35,19 @@ https://spotify-github-profile.kittinanx.com
 ![Lower Ones Eyes Project Sekai GIF - Lower ones eyes Project sekai Niigo - Discover   Share GIFs](https://github.com/user-attachments/assets/0ca0416e-8cf9-4dc3-9049-3279e184c0e1)
 
 
+
+<p>‎ </p>
+
+<p>‎ </p>
+
+ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ♫♬♪
+
+https://spotify-github-profile.kittinanx.com
+<p>‎ </p>
+
+
+
+<p align="center">↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇</p>
 
 
 
