@@ -40,7 +40,8 @@
 
 <p>‎ </p>
 
-ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ♫♬♪
+<p align="center">────୨ৎ────
+𝐍𝐨𝐰 𝐩𝐥𝐚𝐲𝐢𝐧𝐠 𝐨𝐧 𝐒𝐩𝐨𝐭𝐢𝐟𝐲... 
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
