@@ -42,8 +42,11 @@
 
 ᴺᴼᵂ ᴾᴸᴬᵞᴵᴺᴳ♫♬♪
 
-https://spotify-github-profile.kittinanx.com
-<p>‎ </p>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ks5ru7kquzgtg3mxtpjbothfq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5e5e5e&bar_color_cover=true">
+  </a>
+</p>
 
 
 
