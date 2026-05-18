@@ -59,10 +59,9 @@ $${\large\color{#DDAACC}\text{One day, the group bumps into An, who has seen a s
 <p align="center">𝐍𝐨𝐰 𝐩𝐥𝐚𝐲𝐢𝐧𝐠 𝐨𝐧 𝐒𝐩𝐨𝐭𝐢𝐟𝐲... 
 
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312ks5ru7kquzgtg3mxtpjbothfq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=5e5e5e&bar_color_cover=true">
-  </a>
+<p align="center"
+
+Spotify lol
 </p>
 
 
