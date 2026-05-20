@@ -17,7 +17,7 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 
 𝙨𝙤𝙘𝙞𝙖𝙡𝙨:
 
-[![Twitter](https://shields.io)](https://twitter.com)
+[![TIKTOK](https://shields.io)](https://www.tiktok.com/@yourtooslowh0e)
 <p>‎ </p>
 
 
