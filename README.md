@@ -18,6 +18,12 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 𝙨𝙤𝙘𝙞𝙖𝙡𝙨:
 
 [![TIKTOK](https://shields.io)](https://www.tiktok.com/@yourtooslowh0e)
+
+[![STRAWPAGE](https://shields.io)](https://nightocord-at-2500.straw.page/)
+
+[![TWITTER](https://shields.io)](https://x.com/yourtooslowh0e)
+
+
 <p>‎ </p>
 
 
@@ -64,7 +70,7 @@ $${\large\color{#DDAACC}\text{One day, the group bumps into An, who has seen a s
 
 <p align="center"
 
-Spotify lol
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312ks5ru7kquzgtg3mxtpjbothfq&cover_image=true&theme=default&show_offline=true&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=7a419f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 </p>
 
 
