@@ -5,11 +5,25 @@
 
 <p>‎ </p>
 
+<p align="center">
+<img width="736" height="399" alt="Nightcord at 25_00 worldink part 2 card edit wallpaper made by me! (feel free to use it!)" src="https://github.com/user-attachments/assets/21d7d117-78d5-4371-ae75-e321ec62cfef" />
+
+$$\color{#DDAACC}{I'm\space still\space with\space you. . .}$$
+
+$$\color{#CCAA88}{Even\space if\space it\space hurts...}$$
+
+ $$\color{#8888CC}{I'm\space here\space with\space you. . .}$$
+
+$$\color{#BB6688}{Even\space if\space i'm\space broken. . .}$$
+
+<p>‎ </p>
 
 $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 
 
 
+
+<p>‎ </p>
 
 
 <p>‎ </p>
