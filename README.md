@@ -4,7 +4,7 @@
 ────୨ৎ────爱我多一点
      𐔌 @ 𝘚𝘶𝘬𝘪 .ᐟ.ᐟ ꒱ ˚.🦴 ᵎᵎ. 𝘤+𝘩 𝘧𝘳𝘦𝘦𝘭𝘺⸝⸝
           ⌞ ⌝ ¡...! 𝘸2𝘪 𝘪𝘧 𝘣𝘶𝘴𝘺 (¬`‸´¬) 𝘩𝘦𝘳𝘮𝘪𝘵 𝘤𝘳𝘢𝘣
-   ᯓ #1 𝘬𝘢𝘪𝘵𝘰 𝘨𝘭𝘢𝘻𝘦𝘳
+   ᯓ #1 𝘬𝘢𝘪𝘵𝘰 𝘨𝘭𝘢𝘻𝘦𝘳 & 𝘯25 𝘨𝘭𝘢𝘻𝘦𝘳
   🐇.✦ ݁˖</pre>
 
 
@@ -48,7 +48,7 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 <p>‎ </p>
 
 
-𝄞⨾💿✮˚.⋆
+𝄞⨾💿✮˚.⋆ ロウワー 
 
 
 <p>‎ </p>
@@ -56,11 +56,11 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 
 <p>‎ </p>
 
-$${\large\color{#DDAACC}\text{With the song that made Mafuyu smile complete, positive responses from fans come flooding in.}}$$
+$${\large\color{#DDAACC}\text{𝘞𝘪𝘵𝘩 𝘵𝘩𝘦 𝘴𝘰𝘯𝘨 𝘵𝘩𝘢𝘵 𝘮𝘢𝘥𝘦 𝘔𝘢𝘧𝘶𝘺𝘶 𝘴𝘮𝘪𝘭𝘦 𝘤𝘰𝘮𝘱𝘭𝘦𝘵𝘦, 𝘱𝘰𝘴𝘪𝘵𝘪𝘷𝘦 𝘳𝘦𝘴𝘱𝘰𝘯𝘴𝘦𝘴 𝘧𝘳𝘰𝘮 𝘧𝘢𝘯𝘴 𝘤𝘰𝘮𝘦 𝘧𝘭𝘰𝘰𝘥𝘪𝘯𝘨 i𝘯.}}$$
 
-$${\large\color{#DDAACC}\text{Meanwhile, Mizuki feels like the only one unable to get closer to the other members.}}$$
+$${\large\color{#DDAACC}\text{Meanwhil𝘦, 𝘔𝘪𝘻𝘶𝘬𝘪 𝘧𝘦𝘦𝘭𝘴 𝘭𝘪𝘬𝘦 𝘵𝘩𝘦 𝘰𝘯𝘭𝘺 𝘰𝘯𝘦 𝘶𝘯𝘢𝘣𝘭𝘦 𝘵𝘰 𝘨𝘦𝘵 𝘤𝘭𝘰𝘴𝘦𝘳 𝘵𝘰 the other 𝘮𝘦𝘮𝘣𝘦𝘳𝘴.}}$$
 
-$${\large\color{#DDAACC}\text{One day, the group bumps into An, who has seen a side to Mizuki that the others haven't...}}$$
+$${\large\color{#DDAACC}\text{On𝘦 𝘥𝘢𝘺, 𝘵𝘩𝘦 𝘨𝘳𝘰𝘶𝘱 𝘣𝘶𝘮𝘱𝘴 𝘪𝘯𝘵𝘰 𝘈𝘯, 𝘸𝘩𝘰 𝘩𝘢𝘴 𝘴𝘦𝘦𝘯 𝘢 𝘴𝘪𝘥𝘦 𝘵𝘰 𝘔𝘪𝘻𝘶𝘬𝘪 𝘵𝘩𝘢𝘵 𝘵𝘩𝘦 𝘰𝘵𝘩𝘦𝘳𝘴 𝘩𝘢𝘷𝘦𝘯'𝘵...}}$$
 
 
 
