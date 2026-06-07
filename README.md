@@ -42,7 +42,7 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 
 [𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://nightocord-at-2500.straw.page/)
 
-[𝘛𝘸𝘪𝘵𝘵𝘦𝘳 𝘰𝘳 𝘟](https://nightocord-at-2500.straw.page/)
+[𝘛𝘸𝘪𝘵𝘵𝘦𝘳 𝘰𝘳 𝘟](https://x.com/yourtooslowh0e)
 
 
 <p>‎ </p>
