@@ -50,7 +50,7 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 
 𝄞⨾💿✮˚.⋆ ロウワー 🦀
 
-<div align="center">༘˚⋆𐙚｡⋆𖦹.✧˚ The ribbon has been stayed for 6 years. . .
+<div align="center">༘˚⋆𐙚｡⋆𖦹.✧˚ (🎀) 𝘐 𝘤𝘢𝘯'𝘵 𝘵𝘦𝘭𝘭 𝘺𝘰𝘶 𝘳𝘪𝘨𝘩𝘵 𝘯𝘰𝘸, 𝘣𝘶𝘵 𝘸𝘩𝘦𝘯 𝘐 𝘧𝘦𝘦𝘭 𝘳𝘦𝘢𝘥𝘺... 𝘐 𝘩𝘰𝘱𝘦 𝘺𝘰𝘶'𝘭𝘭 𝘣𝘦 𝘸𝘪𝘭𝘭𝘪𝘯𝘨 𝘵𝘰 𝘩𝘦𝘢𝘳 𝘮𝘦 𝘰𝘶𝘵... (𝘌𝘱𝘪𝘴𝘰𝘥𝘦 8:  𝘔𝘺 𝘭𝘪𝘦) 
 
 <p>‎ </p>
 
