@@ -1,11 +1,12 @@
 <p align="center">⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹</p align="center">
 
+<pre>
 ────୨ৎ────爱我多一点
      𐔌 @ 𝘚𝘶𝘬𝘪 .ᐟ.ᐟ ꒱ ˚.🦴 ᵎᵎ. 𝘤+𝘩 𝘧𝘳𝘦𝘦𝘭𝘺⸝⸝
           ⌞ ⌝ ¡...! 𝘸2𝘪 𝘪𝘧 𝘣𝘶𝘴𝘺 (¬`‸´¬) 𝘩𝘦𝘳𝘮𝘪𝘵 𝘤𝘳𝘢𝘣
    ᯓ #1 𝘬𝘢𝘪𝘵𝘰 𝘨𝘭𝘢𝘻𝘦𝘳
-  
-🐇.✦ ݁˖
+  🐇.✦ ݁˖</pre>
+
 
 <p>‎ </p>
 
@@ -14,13 +15,13 @@
 <p align="center">
 <img width="736" height="399" alt="Nightcord at 25_00 worldink part 2 card edit wallpaper made by me! (feel free to use it!)" src="https://github.com/user-attachments/assets/21d7d117-78d5-4371-ae75-e321ec62cfef" />
 
-$$\color{#DDAACC}{I'm\space still\space with\space you. . .}$$
+$$\color{#DDAACC}{\text{I'm still with you. . .}}$$
 
-$$\color{#CCAA88}{Even\space if\space it\space hurts...}$$
+$$\color{#CCAA88}{\text{Even if it hurts...}}$$
 
- $$\color{#8888CC}{I'm\space here\space with\space you. . .}$$
+$$\color{#8888CC}{\text{I'm here with you. . .}}$$
 
-$$\color{#BB6688}{Even\space if\space i'm\space broken. . .}$$
+$$\color{#BB6688}{\text{Even if i'm broken. . .}}$$
 
 <p>‎ </p>
 
@@ -37,11 +38,11 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 
 𐙚⋆°🦀🐚⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀 𝗰𝗼𝘃𝗲:
 
-[![TIKTOK](https://shields.io)](https://www.tiktok.com/@yourtooslowh0e)
+[TIKTOK](https://www.tiktok.com/@yourtooslowh0e)
 
-[![STRAWPAGE](https://shields.io)](https://nightocord-at-2500.straw.page/)
+[STRAWPAGE](https://nightocord-at-2500.straw.page/)
 
-[![TWITTER](https://shields.io)](https://x.com/yourtooslowh0e)
+[TWITTER](https://nightocord-at-2500.straw.page/)
 
 
 <p>‎ </p>
