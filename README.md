@@ -15,13 +15,13 @@
 <p align="center">
 <img width="736" height="399" alt="Nightcord at 25_00 worldink part 2 card edit wallpaper made by me! (feel free to use it!)" src="https://github.com/user-attachments/assets/21d7d117-78d5-4371-ae75-e321ec62cfef" />
 
-$$\color{#DDAACC}{\text{I'm still with you. . .}}$$
+$$\color{#DDAACC}{\text{(🎀) I'm still with you, even if i let go of my ribbon. . .}}$$
 
-$$\color{#CCAA88}{\text{Even if it hurts...}}$$
+$$\color{#CCAA88}{\text{(🖌️) Even if it hurts, like a blank canvas without any ideas. . .}}$$
 
-$$\color{#8888CC}{\text{I'm here with you. . .}}$$
+$$\color{#8888CC}{\text{(❄️) I'm here with you now and forever, cuddling with you in a empty world. . .}}$$
 
-$$\color{#BB6688}{\text{Even if i'm broken. . .}}$$
+$$\color{#BB6688}{\text{(🎼) Even if i'm broken, I'll save you like a fragmeted music sheet. . .}}$$
 
 <p>‎ </p>
 
