@@ -36,7 +36,7 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 <p>‎ </p>
 
 
-𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀 𝗰𝗼𝘃𝗲:
+$$\color{#DDAACC}𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀 𝗰𝗼𝘃𝗲:}}$$
 
 [𝘛𝘪𝘬𝘵𝘰𝘬](https://www.tiktok.com/@yourtooslowh0e)
 
