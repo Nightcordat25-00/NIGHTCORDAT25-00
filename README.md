@@ -54,13 +54,18 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 $$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀 𝗰𝗼𝘃𝗲:}}$$
 
 
-[тιктσк](https://www.tiktok.com/@yourtooslowh0e)
+[Tiktok](https://www.tiktok.com/@yourtooslowh0e)
 
-[丂тяαωραgє](https://nightocord-at-2500.straw.page/)
+[Diary](https://nightocord-at-2500.straw.page/)
 
-[ㄒωιттєя σя χ](https://x.com/yourtooslowh0e)
+[Twitter or X](https://x.com/yourtooslowh0e)
 
-[мιzυкιѕ υηтιтℓє∂ яιввσηѕ σя αтαвσσк](https://nightcordat25-00.atabook.org/)
+[Journal](https://nightcordat25-00.atabook.org/)
+
+[More Galaxy Stars Offical Discord Server](https://discord.gg/MrrhxDtS8J)
+
+[Twitch](https://www.twitch.tv/yourtooslowspade)
+
 
 <p>‎ </p>
 
