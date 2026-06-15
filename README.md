@@ -62,7 +62,7 @@ $$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀
 
 [Journal](https://nightcordat25-00.atabook.org/)
 
-[More Galaxy Stars Offical Discord Server](https://discord.gg/MrrhxDtS8J)
+[PMGS/PROJECT: MORE GALAXY STARS OFFICAL SERVER](https://discord.gg/MrrhxDtS8J)
 
 [Twitch](https://www.twitch.tv/yourtooslowspade)
 
