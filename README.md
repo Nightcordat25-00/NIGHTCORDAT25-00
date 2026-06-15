@@ -60,7 +60,7 @@ $$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀
 
 [Twitter or X](https://x.com/yourtooslowh0e)
 
-[Journal](https://nightcordat25-00.atabook.org/)
+[Journal / Atabook](https://nightcordat25-00.atabook.org/)
 
 [PMGS/PROJECT: MORE GALAXY STARS OFFICAL SERVER](https://discord.gg/MrrhxDtS8J)
 
