@@ -17,7 +17,7 @@ _____________________________________________________________________________
 ⠀⠀⠀⢸⣿⡄⠀⠀⠀⢷⣄     
 ⟡⠀⠀⢸⣿⠃⠀⠀⠀⠀⠉⠀⠀⁺
 ⠀⠀⠠⠞⠁
-            ᶻ 𝗓 𐰁 .ᐟ All ribbons are perfect just the way they are. . . -Suki         
+            ᶻ 𝗓 𐰁 .ᐟ 𝘈𝘭𝘭 𝘳𝘪𝘣𝘣𝘰𝘯𝘴 𝘢𝘳𝘦 𝘱𝘦𝘳𝘧𝘦𝘤𝘵 𝘫𝘶𝘴𝘵 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘵𝘩𝘦𝘺'𝘳𝘦 𝘢𝘳𝘦. . .          
 </pre>
 
 
@@ -54,20 +54,22 @@ $${\large\color{#884499}\text{See you at Nightcord at 25:00}}$$
 $$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀 𝗰𝗼𝘃𝗲:}}$$
 
 
-[Tiktok](https://www.tiktok.com/@yourtooslowh0e)
+[⋆. ୨୧˚⋆ 𝘛𝘪𝘬𝘵𝘰𝘬](https://www.tiktok.com/@yourtooslowh0e)
 
-[Diary](https://nightocord-at-2500.straw.page/)
+[⋆𐙚₊˚⊹♡ 𝘋𝘪𝘢𝘳𝘺 / 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://nightocord-at-2500.straw.page/)
 
-[Twitter or X](https://x.com/yourtooslowh0e)
+[⋆. ୨୧˚⋆ 𝘛𝘸𝘪𝘵𝘵𝘦𝘳 / 𝘟](https://x.com/yourtooslowh0e)
 
-[Journal / Atabook](https://nightcordat25-00.atabook.org/)
+[⋆𐙚₊˚⊹♡ 𝘑𝘰𝘶𝘳𝘯𝘢𝘭 / 𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://nightcordat25-00.atabook.org/)
 
-[PMGS/PROJECT: MORE GALAXY STARS OFFICAL SERVER](https://discord.gg/MrrhxDtS8J)
+[ʚ♡⃛ɞ 𝘖𝘧𝘧𝘪𝘤𝘪𝘢𝘭 𝘋𝘪𝘴𝘤𝘰𝘳𝘥 𝘚𝘦𝘳𝘷𝘦𝘳 (𝘰𝘱𝘵𝘪𝘰𝘯𝘢𝘭)](https://discord.gg/MrrhxDtS8J)
 
-[Twitch](https://www.twitch.tv/yourtooslowspade)
+[౨ৎ 𝘛𝘸𝘪𝘵𝘤𝘩](https://www.twitch.tv/yourtooslowspade)
 
-[Tree Decorating!](https://colormytree.me/2025/01KCH1JBSM9B7QZGAPJN53BBWZ)
+[˚｡⋆୨୧˚𝘛𝘳𝘦𝘦 𝘥𝘦𝘤𝘰𝘳𝘢𝘵𝘪𝘯𝘨!](https://colormytree.me/2025/01KCH1JBSM9B7QZGAPJN53BBWZ)
 <p>‎ </p>
+
+[⋆. 𐙚 ˚𝘊.𝘢𝘪](https://character.ai/profile/YOURTOOSLOWH0E) 
 
 
 𝄞⨾💿✮˚.⋆ ロウワー 🦀
@@ -121,7 +123,7 @@ $${\large\color{#DDAACC}\text{On𝘦 𝘥𝘢𝘺, 𝘵𝘩𝘦 𝘨𝘳𝘰𝘶
 
 <p align="center">↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇</p>
 
-
+<p align="center">ᴠᴏʟᴜᴍᴇ : ▮▮▮▮▮▮▯▯▯</p>
 
 
 
