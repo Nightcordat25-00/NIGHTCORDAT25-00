@@ -56,20 +56,21 @@ $$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀
 
 [⋆. ୨୧˚⋆ 𝘛𝘪𝘬𝘵𝘰𝘬](https://www.tiktok.com/@yourtooslowh0e)
 
+
 [⋆𐙚₊˚⊹♡ 𝘋𝘪𝘢𝘳𝘺 / 𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://nightocord-at-2500.straw.page/)
+
 
 [⋆. ୨୧˚⋆ 𝘛𝘸𝘪𝘵𝘵𝘦𝘳 / 𝘟](https://x.com/yourtooslowh0e)
 
+
 [⋆𐙚₊˚⊹♡ 𝘑𝘰𝘶𝘳𝘯𝘢𝘭 / 𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://nightcordat25-00.atabook.org/)
 
-[ʚ♡⃛ɞ 𝘖𝘧𝘧𝘪𝘤𝘪𝘢𝘭 𝘋𝘪𝘴𝘤𝘰𝘳𝘥 𝘚𝘦𝘳𝘷𝘦𝘳 (𝘰𝘱𝘵𝘪𝘰𝘯𝘢𝘭)](https://discord.gg/MrrhxDtS8J)
 
-<p>‎ </p>
+[ʚ♡⃛ɞ 𝘖𝘧𝘧𝘪𝘤𝘪𝘢𝘭 𝘋𝘪𝘴𝘤𝘰𝘳𝘥 𝘚𝘦𝘳𝘷𝘦𝘳 (𝘰𝘱𝘵𝘪𝘰𝘯𝘢𝘭)](https://discord.gg/MrrhxDtS8J)
 
 
 [౨ৎ 𝘛𝘸𝘪𝘵𝘤𝘩](https://www.twitch.tv/yourtooslowspade)
 
-<p>‎ </p>
 
 [˚｡⋆୨୧˚𝘛𝘳𝘦𝘦 𝘥𝘦𝘤𝘰𝘳𝘢𝘵𝘪𝘯𝘨!](https://colormytree.me/2025/01KCH1JBSM9B7QZGAPJN53BBWZ)
 
