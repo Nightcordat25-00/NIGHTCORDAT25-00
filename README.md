@@ -74,7 +74,6 @@ $$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀
 
 [˚｡⋆୨୧˚𝘛𝘳𝘦𝘦 𝘥𝘦𝘤𝘰𝘳𝘢𝘵𝘪𝘯𝘨!](https://colormytree.me/2025/01KCH1JBSM9B7QZGAPJN53BBWZ)
 
-<p>‎ </p>
 
 [⋆. 𐙚 ˚𝘊.𝘢𝘪](https://character.ai/profile/YOURTOOSLOWH0E) 
 
