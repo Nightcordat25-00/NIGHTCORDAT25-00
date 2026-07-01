@@ -21,7 +21,8 @@ _____________________________________________________________________________
 </pre>
 
 <img src = "https://komarev.com/ghpvc/?username=nightcordat25-00&color=DFBDEC&label=POLYCORD"> ┈⠀⠀#NIGHTCORDF0REVER|
-
+| :--- |
+| [AYUMI](https://github.com/KAITOKISSER)⠀
 
 
 <p>‎ </p>
