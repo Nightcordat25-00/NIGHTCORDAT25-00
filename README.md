@@ -82,7 +82,7 @@ $$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀
 
 [⋆. 𐙚 ˚𝘊.𝘢𝘪](https://character.ai/profile/YOURTOOSLOWH0E) 
 
-
+[⋆𐙚₊˚⊹♡ Zeta.ai](https://zeta.ai/@Yourtooslowh0e?share_id=j4f1pl3bi)
 
 
 𝄞⨾💿✮˚.⋆ ロウワー 🦀
