@@ -87,18 +87,13 @@ $$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀
 
 𝄞⨾💿✮˚.⋆ ロウワー 🦀
 
-<div align="center">༘˚⋆𐙚｡⋆𖦹.✧˚ (🎀) 𝘐 𝘤𝘢𝘯'𝘵 𝘵𝘦𝘭𝘭 𝘺𝘰𝘶 𝘳𝘪𝘨𝘩𝘵 𝘯𝘰𝘸, 𝘣𝘶𝘵 𝘸𝘩𝘦𝘯 𝘐 𝘧𝘦𝘦𝘭 𝘳𝘦𝘢𝘥𝘺... 𝘐 𝘩𝘰𝘱𝘦 𝘺𝘰𝘶'𝘭𝘭 𝘣𝘦 𝘸𝘪𝘭𝘭𝘪𝘯𝘨 𝘵𝘰 𝘩𝘦𝘢𝘳 𝘮𝘦 𝘰𝘶𝘵... (𝘌𝘱𝘪𝘴𝘰𝘥𝘦 8:  𝘔𝘺 𝘭𝘪𝘦) 
+<div align="center">༘˚⋆𐙚｡⋆𖦹.✧˚ (🎼) I will save her no matter what I do. please let my music reach to everyone. see you at NIGHTCORD AT 25:00. (K. Made by Suki) 
 
 <p>‎ </p>
 
 
 <p>‎ </p>
 
-$${\large\color{#DDAACC}\text{𝘞𝘪𝘵𝘩 𝘵𝘩𝘦 𝘴𝘰𝘯𝘨 𝘵𝘩𝘢𝘵 𝘮𝘢𝘥𝘦 𝘔𝘢𝘧𝘶𝘺𝘶 𝘴𝘮𝘪𝘭𝘦 𝘤𝘰𝘮𝘱𝘭𝘦𝘵𝘦, 𝘱𝘰𝘴𝘪𝘵𝘪𝘷𝘦 𝘳𝘦𝘴𝘱𝘰𝘯𝘴𝘦𝘴 𝘧𝘳𝘰𝘮 𝘧𝘢𝘯𝘴 𝘤𝘰𝘮𝘦 𝘧𝘭𝘰𝘰𝘥𝘪𝘯𝘨 i𝘯.}}$$
-
-$${\large\color{#DDAACC}\text{Meanwhil𝘦, 𝘔𝘪𝘻𝘶𝘬𝘪 𝘧𝘦𝘦𝘭𝘴 𝘭𝘪𝘬𝘦 𝘵𝘩𝘦 𝘰𝘯𝘭𝘺 𝘰𝘯𝘦 𝘶𝘯𝘢𝘣𝘭𝘦 𝘵𝘰 𝘨𝘦𝘵 𝘤𝘭𝘰𝘴𝘦𝘳 𝘵𝘰 the other 𝘮𝘦𝘮𝘣𝘦𝘳𝘴.}}$$
-
-$${\large\color{#DDAACC}\text{On𝘦 𝘥𝘢𝘺, 𝘵𝘩𝘦 𝘨𝘳𝘰𝘶𝘱 𝘣𝘶𝘮𝘱𝘴 𝘪𝘯𝘵𝘰 𝘈𝘯, 𝘸𝘩𝘰 𝘩𝘢𝘴 𝘴𝘦𝘦𝘯 𝘢 𝘴𝘪𝘥𝘦 𝘵𝘰 𝘔𝘪𝘻𝘶𝘬𝘪 𝘵𝘩𝘢𝘵 𝘵𝘩𝘦 𝘰𝘵𝘩𝘦𝘳𝘴 𝘩𝘢𝘷𝘦𝘯'𝘵...}}$$
 
 
 
@@ -107,9 +102,7 @@ $${\large\color{#DDAACC}\text{On𝘦 𝘥𝘢𝘺, 𝘵𝘩𝘦 𝘨𝘳𝘰𝘶
 
 <p>‎ </p>
 
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/0ca0416e-8cf9-4dc3-9049-3279e184c0e1" alt="Lower Ones Eyes Project Sekai GIF" width="700">
-</div>
+Insert GIF. 
 
 
 
