@@ -52,11 +52,10 @@ ________________________________________________________________________________
 
 <p>‎ </p>
 
-<img width="1087" height="1200" alt="image" src="https://github.com/user-attachments/assets/9a6df8e4-d32b-4ee3-80aa-63ab77f4ba6f" />
+insert image. 
 
 
-
-$$\color{#DDAACC}{\text{𐙚⋆°🦀🫧⋆ᥫ᭡~ 𝗛𝗲𝗿𝗺𝗶𝘁𝘀 𝗰𝗼𝘃𝗲:}}$$
+Aquarium Visit. 
 
 
 [⋆. ୨୧˚⋆ 𝘛𝘪𝘬𝘵𝘰𝘬](https://www.tiktok.com/@yourtooslowh0e)
