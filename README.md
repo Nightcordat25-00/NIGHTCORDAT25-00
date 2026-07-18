@@ -20,7 +20,7 @@ _____________________________________________________________________________
             ᶻ 𝗓 𐰁 .ᐟ 𝘈𝘭𝘭 𝘳𝘪𝘣𝘣𝘰𝘯𝘴 𝘢𝘳𝘦 𝘱𝘦𝘳𝘧𝘦𝘤𝘵 𝘫𝘶𝘴𝘵 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘵𝘩𝘦𝘺'𝘳𝘦 𝘢𝘳𝘦. . .          
 </pre>
 
-<img src = "https://komarev.com/ghpvc/?username=nightcordat25-00&color=DFBDEC&label=POLYCORD"> ┈⠀⠀#NIGHTCORDF0REVER|
+<img src = "https://komarev.com/ghpvc/?username=nightcordat25-00&color=DFBDEC&label=NIGHTCORDIANS"> ┈⠀⠀#NIGHTCORDF0REVER|
 | :--- |
 | [AYUMI](https://github.com/KAITOKISSER)⠀
 
