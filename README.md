@@ -55,7 +55,7 @@ ________________________________________________________________________________
 insert image. 
 
 
-Aquarium Visit. 
+$$\color{#39517D}{\text{🪼⋆.ೃ࿔*:･Aquarium Visit.}}$$ 
 
 
 [⋆. ୨୧˚⋆ 𝘛𝘪𝘬𝘵𝘰𝘬](https://www.tiktok.com/@yourtooslowh0e)
@@ -83,8 +83,10 @@ Aquarium Visit.
 
 [⋆𐙚₊˚⊹♡ Zeta.ai](https://zeta.ai/@Yourtooslowh0e?share_id=j4f1pl3bi)
 
+[౨ৎ Pintrest](https://ph.pinterest.com/yourtooslowh0eXx/)
 
-𝄞⨾💿✮˚.⋆ ロウワー 🦀
+
+𝄞⨾💿✮˚.⋆ 幸福刑 (☁)
 
 <div align="center">༘˚⋆𐙚｡⋆𖦹.✧˚ (🎼) I will save her no matter what I do. please let my music reach to everyone. see you at NIGHTCORD AT 25:00. (K. Made by Suki) 
 
