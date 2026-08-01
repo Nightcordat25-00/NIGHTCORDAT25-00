@@ -52,7 +52,9 @@ ________________________________________________________________________________
 
 <p>‎ </p>
 
-insert image. 
+<img width="976" height="1040" alt="3a54ebb4-1f4b-4aab-8d19-bf08063a1d2d" src="https://github.com/user-attachments/assets/82394b98-a86e-47d0-b78c-0473d95cbd16" />
+
+
 
 
 $$\color{#39517D}{\text{🪼⋆.ೃ࿔*:･Aquarium Visit.}}$$ 
