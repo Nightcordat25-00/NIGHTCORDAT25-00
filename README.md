@@ -24,7 +24,7 @@ _____________________________________________________________________________
 | :--- |
 | [AYUMI](https://github.com/KAITOKISSER)⠀
 | [FINN!](https://github.com/FinntasticSplashes)
-
+| [MEOPY](https://github.com/meopmaioi)
 <p>‎ </p>
 
 <p>‎ </p>
