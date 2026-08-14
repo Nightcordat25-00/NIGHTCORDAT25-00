@@ -62,7 +62,9 @@ $$\color{#39517D}{\text{🪼⋆.ೃ࿔*:･Aquarium Visit.}}$$
 
 [⋆. ୨୧˚⋆ 𝘛𝘪𝘬𝘵𝘰𝘬](https://www.tiktok.com/@yourtooslowh0e)
 
-𝘋𝘪𝘢𝘳𝘺/𝘴𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦 (𝘞𝘰𝘳𝘬 𝘪𝘯 𝘱𝘳𝘰𝘨𝘳𝘦𝘴𝘴! 𝘱𝘭𝘦𝘢𝘴𝘦 𝘣𝘦 𝘱𝘢𝘵𝘪𝘦𝘯𝘵.) 
+[⋆. ୨୧˚⋆ Diary / Strawpage](https://kanades-music-diary.straw.page/)
+
+
 
 [⋆. ୨୧˚⋆ 𝘛𝘸𝘪𝘵𝘵𝘦𝘳 / 𝘟](https://x.com/yourtooslowh0e)
 
