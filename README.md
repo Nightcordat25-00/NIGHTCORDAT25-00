@@ -22,8 +22,10 @@ _____________________________________________________________________________
 
 <img src = "https://komarev.com/ghpvc/?username=nightcordat25-00&color=DFBDEC&label=NIGHTCORDIANS"> ┈⠀⠀#NIGHTCORDF0REVER|
 | :--- |
+| A L T  A C C O U N T S|
 | [AYUMI](https://github.com/KAITOKISSER)⠀
 | [FINN!](https://github.com/FinntasticSplashes)
+| F R I E N D S|
 | [MEOPY](https://github.com/meopmaioi)
 <p>‎ </p>
 
