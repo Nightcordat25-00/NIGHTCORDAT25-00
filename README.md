@@ -71,7 +71,7 @@ $$\color{#39517D}{\text{🪼⋆.ೃ࿔*:･Aquarium Visit.}}$$
 [⋆. ୨୧˚⋆ 𝘛𝘸𝘪𝘵𝘵𝘦𝘳 / 𝘟](https://x.com/yourtooslowh0e)
 
 
-[⋆𐙚₊˚⊹♡ 𝘑𝘰𝘶𝘳𝘯𝘢𝘭 / 𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://nightcordat25-00.atabook.org/)
+[⋆𐙚₊˚⊹♡ 𝘑𝘰𝘶𝘳𝘯𝘢𝘭 / 𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://tsukinewstrawpage.straw.page/) 
 
 
 [ʚ♡⃛ɞ 𝘖𝘧𝘧𝘪𝘤𝘪𝘢𝘭 𝘋𝘪𝘴𝘤𝘰𝘳𝘥 𝘚𝘦𝘳𝘷𝘦𝘳 (𝘰𝘱𝘵𝘪𝘰𝘯𝘢𝘭)](https://discord.gg/MrrhxDtS8J)
