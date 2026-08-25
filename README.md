@@ -89,6 +89,8 @@ $$\color{#39517D}{\text{🪼⋆.ೃ࿔*:･Aquarium Visit.}}$$
 
 [౨ৎ Pintrest](https://ph.pinterest.com/yourtooslowh0eXx/)
 
+[ʚ♡⃛ɞ EN PRONOUNS](https://en.pronouns.page/@Nightcordat25-00) 
+
 
 𝄞⨾💿✮˚.⋆ 幸福刑 (☁)
 
