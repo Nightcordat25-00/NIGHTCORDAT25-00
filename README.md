@@ -64,14 +64,14 @@ $$\color{#39517D}{\text{🪼⋆.ೃ࿔*:･Aquarium Visit.}}$$
 
 [⋆. ୨୧˚⋆ 𝘛𝘪𝘬𝘵𝘰𝘬](https://www.tiktok.com/@yourtooslowh0e)
 
-[⋆. ୨୧˚⋆ Diary / Strawpage](https://kanades-music-diary.straw.page/)
+[⋆. ୨୧˚⋆ Diary / Strawpage](https://tsukinewstrawpage.straw.page/) 
 
 
 
 [⋆. ୨୧˚⋆ 𝘛𝘸𝘪𝘵𝘵𝘦𝘳 / 𝘟](https://x.com/yourtooslowh0e)
 
 
-[⋆𐙚₊˚⊹♡ 𝘑𝘰𝘶𝘳𝘯𝘢𝘭 / 𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://tsukinewstrawpage.straw.page/) 
+[⋆𐙚₊˚⊹♡ 𝘑𝘰𝘶𝘳𝘯𝘢𝘭 / 𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://nightcordat25-00.atabook.org/) 
 
 
 [ʚ♡⃛ɞ 𝘖𝘧𝘧𝘪𝘤𝘪𝘢𝘭 𝘋𝘪𝘴𝘤𝘰𝘳𝘥 𝘚𝘦𝘳𝘷𝘦𝘳 (𝘰𝘱𝘵𝘪𝘰𝘯𝘢𝘭)](https://discord.gg/MrrhxDtS8J)
