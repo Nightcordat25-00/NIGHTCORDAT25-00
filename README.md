@@ -94,7 +94,16 @@ $$\color{#39517D}{\text{🪼⋆.ೃ࿔*:･Aquarium Visit.}}$$
 
 𝄞⨾💿✮˚.⋆ 幸福刑 (☁)
 
-<div align="center">༘˚⋆𐙚｡⋆𖦹.✧˚ (🎼) I will save her no matter what I do. please let my music reach to everyone. see you at NIGHTCORD AT 25:00. (K. Made by Suki) 
+<div align="center">༘˚⋆𐙚｡⋆𖦹.✧˚ (🎼) I will save her no matter what I do, please. . . let my music reach to everyone. see you at NIGHTCORD AT 25:00. (K. Made by Suki) 
+
+<p>‎ </p>
+
+
+<p>‎ </p>
+
+<img width="736" height="399" alt="Pjsk Koufuku Kei GIF – Pjsk Koufuku kei Kana6 – discover and share GIFs" src="https://github.com/user-attachments/assets/e9949945-025b-4a70-a133-2b48147f3771" />
+
+
 
 <p>‎ </p>
 
@@ -102,14 +111,6 @@ $$\color{#39517D}{\text{🪼⋆.ೃ࿔*:･Aquarium Visit.}}$$
 <p>‎ </p>
 
 
-
-
-<p>‎ </p>
-
-
-<p>‎ </p>
-
-<img width="736" height="399" alt="image" src="https://github.com/user-attachments/assets/6968a8bc-253e-433f-ab01-e0090c4e24ef" />
 
 
 
