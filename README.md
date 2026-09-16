@@ -1,5 +1,8 @@
 <img width="762" height="1377" alt="KANAFUYU" src="https://github.com/user-attachments/assets/2a14eb6e-9cdc-4d30-9989-a37785d17fca" />
 
+<p align="center">
+<img src = "https://komarev.com/ghpvc/?username=nightcordat25-00&color=DFBDEC&label=NIGHTCORDIANS">
+
 <p align="center">⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹</p align="center">
 
 <p align="justify">
@@ -22,3 +25,10 @@
 <p align="center">꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂</p align="center">
   
   <img width="736" height="399" alt="Pjsk Koufuku Kei GIF – Pjsk Koufuku kei Kana6 – discover and share GIFs" src="https://github.com/user-attachments/assets/5ddd5b16-cbca-4ed7-9b97-d121c6b654d9"/>
+
+| MY NIGHTCORD!|
+| :---: |
+| NIGHTCORD AT 25:00|
+| [MEOPY](https://github.com/meopmaioi)
+
+
