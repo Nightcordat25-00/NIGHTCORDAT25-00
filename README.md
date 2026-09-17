@@ -29,6 +29,7 @@
 | MY NIGHTCORD!|
 | :---: |
 | NIGHTCORD AT 25:00|
-| [MEOPY](https://github.com/meopmaioi)
+| [MIZUKI](https://github.com/meopmaioi)
+| [ENA!](https://github.com/filthysoul)
 
 
