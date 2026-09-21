@@ -1,3 +1,6 @@
+<img width="600" height="215" alt="369c05b1-6fbb-49af-b39e-8684b704383e_removalai_preview" src="https://github.com/user-attachments/assets/87f6ee90-2909-45ab-a9b1-dcceb06d8d03" />
+
+
 <img width="762" height="1377" alt="KANAFUYU" src="https://github.com/user-attachments/assets/2a14eb6e-9cdc-4d30-9989-a37785d17fca" />
 
 <p align="center">
