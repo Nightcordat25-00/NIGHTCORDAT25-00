@@ -34,5 +34,5 @@
 | NIGHTCORD AT 25:00|
 | [MIZUKI](https://github.com/meopmaioi)
 | [ENA!](https://github.com/filthysoul)
-
+| [LUKA!](https://github.com/bringmejoyreturns)
 
