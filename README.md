@@ -24,10 +24,13 @@
 
 <p align="center">⋆𐙚˚🎠⊹♡🎡⋆.ೃ࿔*</p align="center">
   
- _________________________________________________________________________________________________
+<img width="600" height="215" alt="369c05b1-6fbb-49af-b39e-8684b704383e_removalai_preview" src="https://github.com/user-attachments/assets/ec8504e3-42a1-4b61-967b-68bc0df73572" />
+
+
   <img width="736" height="399" alt="Pjsk Koufuku Kei GIF – Pjsk Koufuku kei Kana6 – discover and share GIFs" src="https://github.com/user-attachments/assets/5ddd5b16-cbca-4ed7-9b97-d121c6b654d9"/>
   
-  __________________________________________________________________________________________________
+  <img width="600" height="215" alt="369c05b1-6fbb-49af-b39e-8684b704383e_removalai_preview" src="https://github.com/user-attachments/assets/b5f61c4d-e525-4d77-9da4-3b60b787df80" />
+
 
 | MY NIGHTCORD!|
 | :---: |
