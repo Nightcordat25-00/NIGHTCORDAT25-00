@@ -1,7 +1,7 @@
 <img width="600" height="215" alt="369c05b1-6fbb-49af-b39e-8684b704383e_removalai_preview" src="https://github.com/user-attachments/assets/87f6ee90-2909-45ab-a9b1-dcceb06d8d03" />
 
 
-https://cdn.discordapp.com/attachments/1530843828028702891/1572583713924059316/Untitled3_20261118200547.png?ex=6aff8ef6&is=6afe3d76&hm=3a56e0453b365a2e439218302829857980650ff9dffc6b8ce6c6d0cd88b2bec5&
+WIP! :3
 
 <p align="center">
 <img src = "https://komarev.com/ghpvc/?username=nightcordat25-00&color=DFBDEC&label=NIGHTCORDIANS">
